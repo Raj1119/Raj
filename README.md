@@ -1,2 +1,0 @@
-# Raj
-Get my name
